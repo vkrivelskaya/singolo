@@ -1,1 +1,0 @@
-https://vkrivelskaya.github.io/singolo/
